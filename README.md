@@ -1,0 +1,1 @@
+# Safety-Bingo-spanish
